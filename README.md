@@ -1,1 +1,1 @@
-# DataTechnology
+# Details
